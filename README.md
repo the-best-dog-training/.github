@@ -10,7 +10,6 @@ One of the top frustrations for dog owners is housebreaking. Imagine never havin
 
 Does your dog bark at every doorbell or passerby? While dogs are naturally wired to alert you to strangers, excessive barking can drive you up the wall. Service dogs, however, master the “quiet way”—a subtle signal to let you know someone’s there without a single yip. You’ll learn how to teach your dog this calm, controlled response, making your home a peaceful sanctuary.
 
-![A well-behaved dog walking calmly with its owner in a park](./images/well-behaved-dog.jpg)
 
 ## Leash Training Like a Pro
 
